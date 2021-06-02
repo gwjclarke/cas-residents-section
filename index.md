@@ -9,6 +9,6 @@ Goals:
 * Representing Canadian anesthesiology residents at the CAS
 * Creating programming relevant to anesthesiology residents
 
-To reach anyone on the CAS Residents’ committee, shoot us a message on Facebook and Twitter!
+To reach anyone on the CAS Residents’ committee, shoot us a message on [Facebook](https://www.facebook.com/CASresidents/) and [Twitter](https://twitter.com/casresidents)!
 
 
