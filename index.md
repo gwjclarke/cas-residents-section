@@ -1,4 +1,4 @@
-## Welcome to CAS Residents
+## Welcome to the Canadian Anesthesiologists Society - Residents' Section
 
 Formed in 1995, the CAS Residents’ Section creates programming for residents at the annual CAS conferences and beyond. We act as a unified voice on the behalf of residents to address specific issues and concerns.
 
